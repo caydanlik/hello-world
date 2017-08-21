@@ -1,2 +1,2 @@
 # hello-world
-yeni bir sey daha
+"Raise your words, not voice.It is rain that grows flowers, not thunder." (Rumi)
